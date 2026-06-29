@@ -129,131 +129,131 @@
 <br><br><h3>专家学者福州共探数据要素价值释放新路径</h3><br><p>教育部新版本科专业目录落地 上海多所高校集中“上新”<br><br> | 文章来源：blog.minike.top/Article/details/252073765328.sHtML</p>
 <br><br><h3>四川启动法律援助“一法一条例”执法检查</h3><br><p>母亲节将至 致敬中国烟台SOS儿童村“专职妈妈”<br><br> | 原文地址：github.com/lisacumin64-arch</p>
 <br><br><h3>摩根资产管理快评：美联储维持利率不变，不确定性升高下分歧加剧</h3><br><p>Innovative Solutions and Support发布Q2财报前瞻：市场预期每股收益0.18美元<br><br> | 文章来源：share.minike.top/Article/details/871919.sHtML</p>
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
+<br><br><h3>中科集团控股：股份合并将于4月24日生效</h3><br><p>光大证券：中国石油维持“买入”评级 第一季度业绩再创新高<br><br> | 参考来源：share.kurohicncr.top/Article/details/6061630957.sHtML</p>
+<br><br><h3>东帝汶副总理黎发芳：中国是“雪中送炭的朋友”</h3><br><p>A500ETF南方（159352）创上市以来新高，机构称中国股市上升的势头远未结束<br><br> | 原始页面：github.com/lisacumin64-arch</p>
+<br><br><h3>一季度贷款支持科创企业力度较大</h3><br><p>4月30日外盘头条：联储按兵不动 鲍威尔称将留任理事 微软谷歌亚马逊Meta财报遇喜 马斯克再次出庭作证<br><br> | 原文地址：blog.kurohicncr.top/Article/details/727540293853.sHtML</p>
+<br><br><h3>欧洲债市：欧洲债券上涨 欧洲央行和英国央行维持利率不变</h3><br><p>刘浩凌任证监会副主席 曾任中投公司副董事长、总经理兼首席投资官<br><br> | 详情页地址：share.kurohicncr.top/Article/details/66040623150.sHtML</p>
+<br><br><h3>铁路文旅创新融合绘就发展新图景</h3><br><p>四川宝兴蜂桶寨今年首只人工繁育绿尾虹雉孵化出壳<br><br> | 文章来源：share.kurohicncr.top/Article/details/077033525.sHtML</p>
+<br><br><h3>霍尔木兹海峡遇袭船只沉没 船员全部获救</h3><br><p>Enbridge累计可赎回优先股D系列宣派每股0.3382加元股息<br><br> | 详情页地址：blog.kurohicncr.top/Article/details/126169049600.sHtML</p>
+<br><br><h3>头部券商一季报“炸裂”领跑，顶流券商ETF华宝（512000）放量冲高2%，广发证券上探逾7%，静待业绩政策共振</h3><br><p>PTA&amp;MEG：地缘缓和，供需去库<br><br> | 原始页面：share.kurohicncr.top/Article/details/151380211755.sHtML</p>
+<br><br><h3>床垫第一股ST喜临门5.63亿追债压顶，陈阿裕债务链外溢，公司否认签字收钱 | 长三角资本局</h3><br><p>巨额税收前置拖累OTP银行一季度净利润，核心业务依然强劲<br><br> | 原始页面：blog.kurohicncr.top/Article/details/29001065223.sHtML</p>
+<br><br><h3>浙江杭州：四足机器人西湖巡逻引关注</h3><br><p>沪指险守4200点，创业板顽强收红，机构仍看好科技主线行情！| 华宝基金3A日报（2026.5.12）<br><br> | 原文链接：blog.minike.top/Article/details/23427.sHtML</p>
+<br><br><h3>东兴海关膜结构机动车棚采购及安装项目竞争性协商公告</h3><br><p>习语丨如何理解中美关系新定位的核心要义？<br><br> | 文章出处：blog.kurohicncr.top/Article/details/38936796.sHtML</p>
+<br><br><h3>2026年田蓬海关部门预算公开</h3><br><p>茅台集团总经理王莉已返回公司 此前针对网传信息茅台集团辟谣<br><br> | 原文链接：blog.kurohicncr.top/Article/details/982668.sHtML</p>
+<br><br><h3>银行发射卫星的“经济账”</h3><br><p>安徽旌德云上梯田“开犁” 再现传统农耕场景<br><br> | 原始页面：blog.kurohicncr.top/Article/details/40002263.sHtML</p>
+<br><br><h3>西藏群艺馆：公益培训育新苗 非遗薪火相传</h3><br><p>从“薯都”田野到全国领奖台：一位育种专员的十余年坚守<br><br> | 文章来源：share.kurohicncr.top/Article/details/23837965.sHtML</p>
+<br><br><h3>电影《给阿嬷的情书》：书写中国人刻在骨血里的情义</h3><br><p>日本将派1400人首次正式参加美菲军演 期间将发射导弹<br><br> | 文章出处：blog.kurohicncr.top/Article/details/61331896986.sHtML</p>
+<br><br><h3>铁路上海站迎来“五一”假期客流最高峰 预计发送旅客82.8万人次</h3><br><p>网传朋友圈信息折叠功能取消，腾讯辟谣<br><br> | 原文地址：blog.minike.top/Article/details/799558.sHtML</p>
+<br><br><h3>日韩股市再创历史新高</h3><br><p>油价飙升：特朗普警告伊朗 “时间紧迫”，冲突升级担忧加剧<br><br> | 原文地址：blog.minike.top/Article/details/04351163.sHtML</p>
+<br><br><h3>外交部：台湾问题是中国核心利益中的核心，是中美关系政治基础中的基础</h3><br><p>成都开展150余场助残活动与残疾朋友温暖同行<br><br> | 参考来源：share.minike.top/Article/details/117467.sHtML</p>
+<br><br><h3>中央宣传部、全国总工会联合发布2026年“最美职工”</h3><br><p>LG新能源一季度营业亏损2080亿韩元，因北美电动汽车需求疲软<br><br> | 文章来源：share.kurohicncr.top/Article/details/66655.sHtML</p>
+<br><br><h3>德国柏林举行老爷车日活动 2000辆经典车型亮相</h3><br><p>爱彼迎押注酒店以开启下一增长阶段 拓展精品酒店意在激发新需求<br><br> | 详情页地址：blog.kurohicncr.top/Article/details/47716362.sHtML</p>
+<br><br><h3>做好利企便民“加减法” “一件事”政务服务改革“跑出”加速度</h3><br><p>ZFX山海证券:金价低位企稳整理蓄势<br><br> | 详情页地址：blog.minike.top/Article/details/04797.sHtML</p>
+<br><br><h3>联合国：霍尔木兹海峡相关船舶通行量下降95.3%</h3><br><p>茅台酒江浙沪省区、渠道商一季度整体执行率均达到全年计划的三分之一<br><br> | 原始页面：share.kurohicncr.top/Article/details/84171557918.sHtML</p>
+<br><br><h3>慈文传媒：公司整体收支呈良性循环状态，不会发生债务违约的情形和偿债风险</h3><br><p>河南安阳：殷墟春日盛景引市民周末打卡<br><br> | 原文地址：github.com/lisacumin64-arch</p>
+<br><br><h3>香港科技探索：香港电子商贸业务4月订单总商品交易额6.51亿港元 同比上升3.2%</h3><br><p>榴莲+酒导致呼吸衰竭 切记这些食物别跟酒一起食用<br><br> | 文章出处：blog.kurohicncr.top/Article/details/62434233950.sHtML</p>
+<br><br><h3>里昂：地平线机器人-W维持“跑赢大市”评级 目标价11港元</h3><br><p>亚马逊：受损阿联酋云区域恢复需数月时间<br><br> | 原始页面：github.com/lisacumin64-arch</p>
+<br><br><h3>厦门推动两岸标准共通助力台企拓宽市场</h3><br><p>光大期货：4月28日有色金属日报<br><br> | 原始页面：share.kurohicncr.top/Article/details/12114.sHtML</p>
+<br><br><h3>多地农商行，下调存款利率</h3><br><p>中国电动汽车充电基础设施总数同比增长46.9%<br><br> | 原始页面：share.minike.top/Article/details/6410437254.sHtML</p>
+<br><br><h3>雅各布·弗兰克尔：各国应着力提升经济与金融体系韧性</h3><br><p>大众以AI代理迎战比亚迪，欲在华重塑竞争优势<br><br> | 详情页地址：share.minike.top/Article/details/816191238120.sHtML</p>
+<br><br><h3>雅马哈发动机一季度净利润飙升34.5% 摩托车业务强势增长</h3><br><p>第十期山东省归国留学人员代表人士研修班结业<br><br> | 参考来源：blog.minike.top/Article/details/277800.sHtML</p>
+<br><br><h3>恶意退款退货，不能仅靠“较真”解决</h3><br><p>什么是地中海贫血？三种类型症状并不相同<br><br> | 参考来源：share.kurohicncr.top/Article/details/91545960.sHtML</p>
+<br><br><h3>侨商王琳达率家人赴安徽绩溪寻根</h3><br><p>中小股东提议总经理降薪50%、公司更名等，全筑股份：控股股东不支持<br><br> | 原文链接：share.minike.top/Article/details/166731308.sHtML</p>
+<br><br><h3>以小切口讲大历史 “你好，我们的北京”丛书首发</h3><br><p>特朗普命令海军在霍尔木兹海峡“射杀任何”布设水雷的船只<br><br> | 原始页面：share.minike.top/Article/details/61567127.sHtML</p>
+<br><br><h3>国家发展改革委发布《中国营商环境发展报告（2026）》</h3><br><p>刘海星会见老挝人民革命党中央总书记、国家主席特使沙伦赛<br><br> | 原始页面：blog.minike.top/Article/details/8069227.sHtML</p>
+<br><br><h3>年报分红潮起！红利低波ETF华泰柏瑞（512890）半日成交近6亿领跑同类！机构：高质量现金流重估进行时</h3><br><p>Atlassian、HubSpot加入AI固定收费模式转型浪潮<br><br> | 原始页面：blog.minike.top/Article/details/4250277195.sHtML</p>
+<br><br><h3>伪满皇宫博物院古丁香盛放 古韵花香漫溢庭院</h3><br><p>打破感官壁垒 视障人士在浙江省博物馆“看见”历史<br><br> | 参考来源：blog.minike.top/Article/details/786631462594.sHtML</p>
+<br><br><h3>华泰期货：伊朗局势尚不明朗，昨日能源板块整体上涨</h3><br><p>中信建投期货：5月7日工业品早报<br><br> | 原文地址：github.com/lisacumin64-arch</p>
+<br><br><h3>特朗普称“伊斯兰国”二号头目米努基已被“清除”</h3><br><p>萨博确认业绩预期 但警告零部件供应紧张<br><br> | 详情页地址：share.minike.top/Article/details/483094068254.sHtML</p>
+<br><br><h3>AI惹上刑事调查 如何给聊天机器人设护栏引发热议</h3><br><p>AIOS Tech股价暴跌近30% 逆向股票分割效果昙花一现<br><br> | 文章出处：blog.minike.top/Article/details/610112786327.sHtML</p>
+<br><br><h3>瑞安航空CEO警告：中东冲突拖累票价，本财年或零增长</h3><br><p>外交部：中方正同东盟国家就“南海行为准则”案文保持密切磋商<br><br> | 参考来源：github.com/lisacumin64-arch</p>
+<br><br><h3>特朗普称普京若参加G20峰会“可能会很有好处”</h3><br><p>李松蔚：“爱情几乎掉到了鄙视链的最底端”<br><br> | 原文地址：share.kurohicncr.top/Article/details/7893754621.sHtML</p>
+<br><br><h3>瑞丰银行：严国利辞任副行长，转任该行党委委员、纪委书记</h3><br><p>11名青年科学家和8支团队获中国科学院青年五四奖章<br><br> | 原文地址：github.com/lisacumin64-arch</p>
+<br><br><h3>网红特产买回家发现全是虫 食品安全如何保障</h3><br><p>《金砖国家贸易发展与标准合作服务手册》在京发布<br><br> | 参考来源：share.kurohicncr.top/Article/details/476298.sHtML</p>
+<br><br><h3>“洪迪厄斯”号邮轮出现汉坦病毒病例 南非：两名乘客感染可人际传播的汉坦病毒</h3><br><p>2026年第一季度货币政策执行报告专栏 | ③中央银行与债券市场<br><br> | 原始页面：share.kurohicncr.top/Article/details/40665.sHtML</p>
+<br><br><h3>三书六礼 婚前准备那些事儿</h3><br><p>台湾教师杨中浩：扎根北疆见证民族团结，民族荣誉感油然而生<br><br> | 文章来源：share.minike.top/Article/details/89000246.sHtML</p>
+<br><br><h3>美联储预计按兵不动，沃什接任在即</h3><br><p>2026中国足球女子超级联赛开幕 共有12支球队参赛<br><br> | 参考来源：share.kurohicncr.top/Article/details/873662737.sHtML</p>
+<br><br><h3>2026 DeepSeek-V4适配芯片TOP15</h3><br><p>打好灾害防范“主动仗”——第18个全国防灾减灾日一线见闻<br><br> | 详情页地址：blog.kurohicncr.top/Article/details/93884957.sHtML</p>
+<br><br><h3>铁路杭州站春游运输发客量首破1000万人次</h3><br><p>医保药店“串换”乱象：一个持续多年的“猫鼠”游戏<br><br> | 文章来源：blog.minike.top/Article/details/07441280.sHtML</p>
+<br><br><h3>广西北海海上风电单桩基础设备出运越南</h3><br><p>特朗普再称对美伊达成协议表示乐观<br><br> | 文章出处：blog.kurohicncr.top/Article/details/611252.sHtML</p>
+<br><br><h3>【国投期货|化工视点】印尼“0关税”政策提振瓶片，利多原料</h3><br><p>聚焦科创共话发展 第三届“长三角地区台商看上海”活动在沪开幕<br><br> | 原始页面：share.kurohicncr.top/Article/details/074167447.sHtML</p>
+<br><br><h3>中新健康｜日常做好这些事，可有效降低肿瘤发生风险</h3><br><p>新易盛再创新高，近1年飙涨超890%！重仓光模块龙头“易中天”的创业板人工智能ETF（159363）爆量新高！<br><br> | 参考来源：share.minike.top/Article/details/285270718016.sHtML</p>
+<br><br><h3>刚买就亏，银行理财不香了？年内超40只产品发行失败，有固收理财近1月年化回报低至-10%</h3><br><p>山东省高校图书馆“十大镇馆之宝”评选结果揭晓<br><br> | 原文地址：github.com/lisacumin64-arch</p>
+<br><br><h3>学习新语｜向辛勤付出的奋斗者致敬</h3><br><p>4月黑猫投诉航空公司领域红黑榜：首都航空距起飞20余小时退票扣8成手续费<br><br> | 文章出处：blog.kurohicncr.top/Article/details/405858988086.sHtML</p>
+<br><br><h3>兴凯湖畔百年野生杏花盛放 绵延十里铺满湖岸线</h3><br><p>美国副总统万斯向各州表态：整治欺诈问题，否则将失去联邦医疗补助资金<br><br> | 参考来源：share.kurohicncr.top/Article/details/115226.sHtML</p>
+<br><br><h3>国台办多次纠正台湾记者：台湾是中国的一部分，没有什么“总统”</h3><br><p>带着宠物去旅行！“五一”假期全国铁路宠物托运订单大幅增加<br><br> | 文章出处：share.minike.top/Article/details/066546.sHtML</p>
+<br><br><h3>A股午评：超100股涨停！两大板块爆发涨停潮</h3><br><p>淮河安澜背后 藏着这个防汛“黑科技”<br><br> | 参考来源：share.minike.top/Article/details/74454.sHtML</p>
+<br><br><h3>以色列总理在与伊朗交战期间秘密访问阿联酋</h3><br><p>美股三大指数集体低开 特斯拉跌超3%<br><br> | 参考来源：share.kurohicncr.top/Article/details/42942.sHtML</p>
+<br><br><h3>“汤一介当代学人讲座”纪念哲学家张世英诞辰105周年</h3><br><p>上交所：沪市主板更显蓝筹本色 “压舱石”进一步凸显<br><br> | 原文地址：blog.minike.top/Article/details/623588427191.sHtML</p>
+<br><br><h3>中外嘉宾以诗传情，2026年“国际中文日”暨“诗约四海”全球中文诗友会在京启幕</h3><br><p>OpenAI奥特曼称马斯克曾支持营利计划，否认背叛指控<br><br> | 参考来源：share.kurohicncr.top/Article/details/162675936.sHtML</p>
+<br><br><h3>联播+｜大国外交中的一个细节与一场演讲</h3><br><p>Camtek Q1 2026财报前瞻：AI订单激增，市场聚焦业绩能否延续超预期势头<br><br> | 原文链接：blog.kurohicncr.top/Article/details/454492616316.sHtML</p>
+<br><br><h3>2026年国际博物馆日中国主会场活动在呼和浩特举行</h3><br><p>解放军南部战区位中国黄岩岛领海领空及周边区域组织战备警巡<br><br> | 详情页地址：share.kurohicncr.top/Article/details/8425188218.sHtML</p>
+<br><br><h3>广东湛江至越南芽庄航线复航 边检高效保障通关顺畅</h3><br><p>Alerian MLP ETF宣布每单位派息1.03美元<br><br> | 文章出处：blog.kurohicncr.top/Article/details/8257399513.sHtML</p>
+<br><br><h3>北京三里屯UR玻璃会看到裙底？最新回应：已经做处理</h3><br><p>（文化中国行）为一个馆赴一座城，河北小众博物馆频“出圈”<br><br> | 文章出处：blog.kurohicncr.top/Article/details/045373.sHtML</p>
+<br><br><h3>超级星期三来袭：AI财报与央行决议共掀市场巨浪</h3><br><p>从制造重镇到智造高地 浙江台州的硬核产业跃迁之路<br><br> | 原文链接：share.kurohicncr.top/Article/details/5080455102.sHtML</p>
+<br><br><h3>快讯：现货黄金失守4700美元/盎司，日内跌0.74%。</h3><br><p>5家险企偿付能力不达标<br><br> | 原文地址：share.kurohicncr.top/Article/details/796636.sHtML</p>
+<br><br><h3>违法违规收集使用个人信息 41款移动应用被通报</h3><br><p>韩国央行新任委员称中东冲突导致通胀担忧加剧<br><br> | 原始页面：blog.minike.top/Article/details/344045213696.sHtML</p>
+<br><br><h3>大美边疆看我家丨青春去哪里？去祖国需要的地方 去边疆、赴山海！</h3><br><p>（走进中国乡村）河洛“三彩小镇”千年唐三彩焕新 年产值3.5亿元<br><br> | 详情页地址：blog.minike.top/Article/details/86583181816.sHtML</p>
+<br><br><h3>沪农商行：副行长顾贤斌因工作调整离任</h3><br><p>伊朗议会发言人：美媒报道只是美方“愿望清单”<br><br> | 原文地址：share.minike.top/Article/details/16393882790.sHtML</p>
+<br><br><h3>久其软件：久其女娲天工AI平台可直击政企AI规模化落地核心痛点</h3><br><p>江西省人大常委会原党组副书记、副主任洪礼和受贿、滥用职权、洗钱案一审宣判<br><br> | 原文链接：share.minike.top/Article/details/745721611460.sHtML</p>
+<br><br><h3>苹果的AI战略可能终于要成形了 Wedbush认为WWDC将成为一个重大转折点</h3><br><p>以防长：以色列或“很快”对伊朗“再次采取行动”<br><br> | 文章来源：share.kurohicncr.top/Article/details/2864244.sHtML</p>
+<br><br><h3>弥补人手短缺 日本机场试用中国产机器人服务</h3><br><p>谷歌推出AI训练与推理专用芯片，再次挑战英伟达<br><br> | 原始页面：share.kurohicncr.top/Article/details/2049128.sHtML</p>
+<br><br><h3>【同在国旗下】援疆老师最后一课 全班哭着送别 像送亲人一样把老师抱住舍不得说再见</h3><br><p>“五一”假期·出游 北京会议中心湖畔烧烤季开启<br><br> | 详情页地址：github.com/lisacumin64-arch</p>
+<br><br><h3>REDMI Book Pro 14 上手体验：一款AI性能轻薄全能本</h3><br><p>利好突袭！凌晨，史诗级暴涨！特朗普重磅发声<br><br> | 文章来源：github.com/lisacumin64-arch</p>
+<br><br><h3>Yeti一季度业绩超预期 盘前大涨10%</h3><br><p>有关与T-Mobile合并谈判的报道出炉 德国电信股价下跌<br><br> | 文章来源：github.com/lisacumin64-arch</p>
+<br><br><h3>“哈利·波特：‘阅’读越魔法”读书分享会带来一场魔法与人生的成长之旅</h3><br><p>“五一”假期湖北重点景区领跑 跨界融合成亮点<br><br> | 参考来源：github.com/lisacumin64-arch</p>
+<br><br><h3>刘国中在云南调研时强调 抓实抓细常态化精准帮扶工作 持续巩固拓展脱贫攻坚成果</h3><br><p>刚现上市后首亏，展鹏科技遭多名股东“组团”抛减持计划<br><br> | 原始页面：share.kurohicncr.top/Article/details/242170.sHtML</p>
+<br><br><h3>美元跌至伊朗战争爆发以来低点 美伊据报接近就结束冲突达成协议</h3><br><p>酒价内参5月17日价格发布：精品茅台调价领涨 总价创19天新高<br><br> | 原文地址：blog.kurohicncr.top/Article/details/149144231988.sHtML</p>
+<br><br><h3>对外经济贸易大学与伊犁州签署战略合作框架协议</h3><br><p>1分钟烧光4亿Token！OpenAI最疯狂的男人，逼奥特曼亲自加额度<br><br> | 原文链接：blog.kurohicncr.top/Article/details/18294695.sHtML</p>
+<br><br><h3>05月14日钴424600.00元/吨 30天上涨3.23%</h3><br><p>【光明论坛】坚定不移走生态优先、绿色发展之路<br><br> | 原文地址：blog.kurohicncr.top/Article/details/90230765115.sHtML</p>
+<br><br><h3>赣锋锂业遭Baillie Gifford &amp; Co减持249.71万股 每股作价83.46港元</h3><br><p>应急管理部：强化火源管控 加大火案查处和违规用火典型案例曝光力度<br><br> | 文章来源：blog.minike.top/Article/details/02613453658.sHtML</p>
+<br><br><h3>红果也要付费了？ 抖音高管深夜发声！年卡费用超过优酷爱奇艺，网友担心“极少量”只是开始</h3><br><p>受暴雨天气影响 国铁广州局持续调整列车运行<br><br> | 文章来源：blog.minike.top/Article/details/915371.sHtML</p>
+<br><br><h3>阿联酋以“隐形油轮”突破霍尔木兹海峡封锁</h3><br><p>视频｜海南橡胶再遭监管处罚 国泰海通核查意见可靠性存疑<br><br> | 原始页面：share.kurohicncr.top/Article/details/8099919.sHtML</p>
+<br><br><h3>拉萨市新增成立一家社会工作服务中心</h3><br><p>私募股权公司已对施罗德的Benchmark部门提交报价<br><br> | 文章出处：share.kurohicncr.top/Article/details/0626328052.sHtML</p>
+<br><br><h3>印尼一季度外国游客同比增8.62% 创2020年以来新高</h3><br><p>滴滴快送启动春日营销 万物送达5折起<br><br> | 原始页面：share.kurohicncr.top/Article/details/657159246999.sHtML</p>
+<br><br><h3>爱奇艺，到底在急什么？</h3><br><p>伊朗战争推高燃料价格 英国通胀率攀升<br><br> | 详情页地址：github.com/lisacumin64-arch</p>
+<br><br><h3>研究发现英国青年群体11类癌症发病率上升</h3><br><p>华泰期货：津巴布韦扰动逐渐落地，碳酸锂市场多空分歧加剧<br><br> | 文章来源：share.kurohicncr.top/Article/details/708158.sHtML</p>
+<br><br><h3>报道：特朗普不同意能源部长赖特对汽油价格的评估</h3><br><p>2026年亚太经合组织工商咨询理事会第二次会议在墨西哥城开幕<br><br> | 原文地址：blog.minike.top/Article/details/1582085581.sHtML</p>
+<br><br><h3>全国防灾减灾宣传周：重在预防 赢在备战</h3><br><p>刚刚，两大央行官宣：不加息！<br><br> | 文章出处：share.kurohicncr.top/Article/details/102449287704.sHtML</p>
+<br><br><h3>国乒女团3比0瑞典 晋级世乒赛8强</h3><br><p>伊朗和谈陷入停滞，原油涨幅超 2%<br><br> | 详情页地址：blog.minike.top/Article/details/124616683.sHtML</p>
+<br><br><h3>专家：《现代汉语词典》（汉维对照版）以铸牢中华民族共同体意识为主线</h3><br><p>华泰期货：开割初期，橡胶原料价格强势<br><br> | 原文链接：share.kurohicncr.top/Article/details/847580.sHtML</p>
+<br><br><h3>无人机袭击阿联酋核电站后，油价触及两周高位</h3><br><p>两岸企业苏州寻“智造”协同之道<br><br> | 文章来源：github.com/lisacumin64-arch</p>
+<br><br><h3>任天堂宣布Switch 2涨价，预计本财年销量1650万台</h3><br><p>洲际酒店全球客房收入逆势上涨<br><br> | 详情页地址：github.com/lisacumin64-arch</p>
+<br><br><h3>国际博物馆日：石家河遗址博物馆开馆</h3><br><p>红色研学如何深入人心？湖南韶山“沉浸式游”播撒红色种子<br><br> | 文章出处：github.com/lisacumin64-arch</p>
+<br><br><h3>AI技术并非侵权“挡箭牌” 北京高院发布典型案例</h3><br><p>货车藏猫腻 西双版纳警方查获46只走私雕鸮幼鸟<br><br> | 原文链接：github.com/lisacumin64-arch</p>
+<br><br><h3>无人机实名登记和激活要求将于5月1日起全国实施</h3><br><p>小菜园将于5月11日派发末期股息每股0.2425港元<br><br> | 详情页地址：share.minike.top/Article/details/32000475.sHtML</p>
+<br><br><h3>最大降雨量超360毫米 广西钦州出现特大暴雨</h3><br><p>从“赏花热”到“产业兴” 山东鲜花经济绽放“美丽动能”<br><br> | 原文地址：blog.kurohicncr.top/Article/details/84824891182.sHtML</p>
+<br><br><h3>日本众议院表决通过设立“国家情报局”法案</h3><br><p>杨德龙：特朗普本周访华释放积极信号<br><br> | 详情页地址：share.minike.top/Article/details/036351173641.sHtML</p>
+<br><br><h3>东西问丨王栋：中美关系早已超越双边，具有全球性意义</h3><br><p>第一太平：MPIC第一季度取得综合核心溢利净额69亿披索 同比增加5%<br><br> | 原文链接：share.kurohicncr.top/Article/details/2863000502.sHtML</p>
+<br><br><h3>伊朗查封并没收22名与美以有关联人员财产</h3><br><p>京剧《宰相刘罗锅》复排建组会在京举办<br><br> | 原始页面：github.com/lisacumin64-arch</p>
+<br><br><h3>小摩：永利澳门给予“增持”评级 目标价7.5港元</h3><br><p>免疫药物开发商Odyssey扩大IPO规模成功定价<br><br> | 原始页面：github.com/lisacumin64-arch</p>
+<br><br><h3>云南楚雄一中学教师坠楼 当事人已脱离生命危险</h3><br><p>高盛下调惠而浦评级，指行业及宏观经济面临逆风<br><br> | 参考来源：share.kurohicncr.top/Article/details/63054191468.sHtML</p>
+<br><br><h3>A股分红季启幕，银行ETF华泰柏瑞5月6日起发售</h3><br><p>2025年中国财政部境外募集绿色主权债券资金共60亿元<br><br> | 详情页地址：share.minike.top/Article/details/87418897.sHtML</p>
+<br><br><h3>广东肇庆四会市委书记翁卓辉被查</h3><br><p>第一观察·瞬间｜文明的启迪<br><br> | 文章出处：share.minike.top/Article/details/590302163.sHtML</p>
+<br><br><h3>印度Zee娱乐公司起诉信实-迪士尼合资公司，指控音乐版权遭侵犯</h3><br><p>通用汽车据悉无限期推迟下一代电动皮卡项目<br><br> | 原文链接：blog.kurohicncr.top/Article/details/966365833.sHtML</p>
+<br><br><h3>诺和诺德印度销售增长40%，仿制药压力持续加大</h3><br><p>“五一”假期中缅边境瑞丽口岸跨境游火热 出入境客流超7万人次<br><br> | 原文地址：share.minike.top/Article/details/9073405.sHtML</p>
+<br><br><h3>保罗・都铎・琼斯称美国在AI监管上行动迟缓：“我们早该这么做了”</h3><br><p>共拓“十五五”新格局 共创出海新生态 2026沪港企业家圆桌会举行<br><br> | 参考来源：github.com/lisacumin64-arch</p>
+<br><br><h3>Circle从贝莱德等机构融资2.22亿美元，Arc代币预售估值达30亿美元</h3><br><p>建行一季度业绩亮眼，不良贷款率与上年末持平<br><br> | 原文链接：share.minike.top/Article/details/593206362.sHtML</p>
+<br><br><h3>三星与工会奖金谈判破裂 官方深表遗憾</h3><br><p>迪瑞医疗更正两年财报，投资者索赔全面启动<br><br> | 原始页面：github.com/lisacumin64-arch</p>
+<br><br><h3>国务院：到2030年 服务业总规模迈上100万亿元台阶</h3><br><p>中国著名作家手稿展首展在河南郑州开展 86位作家200余件手稿展出<br><br> | 参考来源：share.minike.top/Article/details/190015472.sHtML</p>
+<br><br><h3>白宫记协晚宴枪手被控试图刺杀特朗普</h3><br><p>腾讯最新声明：不会开发提供“微信访客功能”<br><br> | 参考来源：github.com/lisacumin64-arch</p>
+<br><br><h3>首席经济学家做了光大保德信的总经理，结果都在忙些什么呢？</h3><br><p>英首相拒绝因执政党地方选举失利辞职<br><br> | 文章出处：share.minike.top/Article/details/522486613619.sHtML</p>
+<br><br><h3>Hims &amp; Hers一季度亏损、盈利指引疲软，股价暴跌16%</h3><br><p>营收净利双双下滑，广东两家拟上市银行IPO“长跑”遇业绩大考<br><br> | 原文链接：share.kurohicncr.top/Article/details/3407967.sHtML</p>
+<br><br><h3>新定位！习近平这样阐述中美关系</h3><br><p>母亲节香港街头免费派送花束礼物<br><br> | 文章出处：blog.kurohicncr.top/Article/details/9402191.sHtML</p>
+<br><br><h3>黄金，失守4600美元关口！</h3><br><p>“五一”假期踏山海寻情怀 香港无处不“打卡”<br><br> | 参考来源：share.kurohicncr.top/Article/details/13575532.sHtML</p>
+<br><br><h3>以防长威胁准备重启对伊朗战事 就等美国“开绿灯”</h3><br><p>达势股份获Good Taste Limited增持6.23万股 每股作价50.0612港元<br><br> | 文章出处：blog.minike.top/Article/details/825285647.sHtML</p>
+<br><br><h3>习言道｜父母是孩子的第一任老师</h3><br><p>拾光纪·第23次来到中国，习主席再迎老朋友拉赫蒙<br><br> | 参考来源：blog.kurohicncr.top/Article/details/076074175120.sHtML</p>
+<br><br><h3>三亚亚沙会进入尾声 为城市留下“长效遗产”</h3><br><p>日本央行前行长黑田东彦称2%通胀目标已实现<br><br> | 原始页面：blog.minike.top/Article/details/386845.sHtML</p>
+<br><br><h3>2026年度中国青年五四奖章暨新时代青年先锋奖颁奖仪式在京举行</h3><br><p>山东荣成：谷雨祭海祈丰收<br><br> | 原文链接：share.minike.top/Article/details/8357062.sHtML</p>
+<br><br><h3>（文化中国行）为一个馆赴一座城，河北小众博物馆频“出圈”</h3><br><p>5月9日央行开展5亿元7天期逆回购操作<br><br> | 详情页地址：github.com/lisacumin64-arch</p>
+<br><br><h3>日经指数或将上涨 受美国经济走强迹象提振</h3><br><p>美国正考虑为核电站零部件提供数十亿美元的融资<br><br> | 原始页面：share.minike.top/Article/details/27178636812.sHtML</p>
+<br><br><h3>【长江月评】滞胀阴霾下的供需博弈与新动能突围，“银四”旺季助铜价月线大涨5.61%</h3><br><p>首次，首项，首个！本周我国多领域实现突破 创新实力亮眼<br><br> | 文章出处：github.com/lisacumin64-arch</p>
+<br><br><h3>“五一”出行必看！乘坐夜间高铁、长线自驾攻略请收好</h3><br><p>韩国Kospi指数创下纪录高点 受伊朗可能与美国会谈的提振<br><br> | 详情页地址：github.com/lisacumin64-arch</p>
+<br><br><h3>浙江杭州：捷克学员拜师国医大师 助力中医文化“出海”</h3><br><p>魏建军：用电动渗透率来做市场估值的时代已经过去了<br><br> | 原文地址：blog.minike.top/Article/details/588832.sHtML</p>
+<br><br><h3>国台办驳台陆委会谬论：民进党当局是害台殃民的毒药</h3><br><p>韩国特检组就金建希首案二审结果提出抗诉<br><br> | 文章来源：github.com/lisacumin64-arch</p>
+<br><br><h3>刚刚 ATFX在香港封神斩获年度最佳交易商十大名师双料大奖</h3><br><p>张果彤:黄金大概率将继续震荡<br><br> | 文章出处：blog.kurohicncr.top/Article/details/594497.sHtML</p>
+<br><br><h3>大宗商品综述：交易员评估美伊停战前景 油价波动 伦铜和黄金企稳</h3><br><p>吉林长春：伪满皇宫博物院古丁香引客来<br><br> | 详情页地址：blog.kurohicncr.top/Article/details/089109293.sHtML</p>
+<br><br><h3>2026“赣超”在江西南昌开幕 精彩文艺节目上演</h3><br><p>必和必拓第三财季铁矿石产量增长3%，维持全年产量预期不变<br><br> | 文章出处：github.com/lisacumin64-arch</p>
 - [以轻盈形态回归阅读初心 “一页榆”轻阅读系列新书首发](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
 - [瑞银：上调2026年中国锂价预测18% 升赣锋锂业及天齐锂业目标价](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dubiao.md)
 - [从车间到星河 四川加速构建商业航天全产业链](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
@@ -304,53 +304,53 @@
 - [花旗：中海油田服务重申“买入”评级 目标价11.6港元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
 - [黑龙江通报7起违反中央八项规定精神问题](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenguan.md)
 - [301500一季度盈利超去年全年，净利润增长近8000%！南向资金大比例加仓多只医药股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/efeqf.md)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
-- [link](https://example.com/)
+- [法拉利首款电动车定价约55万欧元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md)
+- [全国劳模吴志民：扎根电力三十余载 匠心守护万家灯火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khfgs.md)
+- [Brand Finance 2026中国品牌价值500强发布：国家电网位居第二，创历史新高](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hiynr.md)
+- [成都市委统战部组织开展青年理论学习小组 “同心咖啡时”主题活动](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
+- [广州越秀法院公开审理“BOSS”商标侵权案 港澳陪审员参与](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
+- [易事特（300376）投资者索赔案收到调解书将获赔，还在诉讼时效内](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laiwai.md)
+- [五一假期来临，国家应急管理部发布安全提示](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hongyan.md)
+- [苑东生物2025年度归母净利润约2.84亿元 同比增19.24%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/exrdf.md)
+- [Vatee万腾:油市外交博弈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/reapz.md)
+- [葡萄酒T7圆桌会议丨孙健：当前形势下，信心和行动最重要](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
+- [英警方就伦敦犹太男子遇刺案指控一名嫌疑人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizan.md)
+- [财经老王丨下一步经济工作怎么干？更大力度、更实举措](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nbvjw.md)
+- [兰州“山中书市”启幕 邂逅藏在山林里的书香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcodq.md)
+- [丰田3月全球销量同比下降7.3%，中国销量下降8%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzalw.md)
+- [人民之心｜继续回答好延安“窑洞之问”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uucop.md)
+- [安克创新：计划继续减少50%至70%充电产品型号数量](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanjia.md)
+- [宁德时代钠电池将量产？性能全面超越锂电池！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fohe.md)
+- [“生命科学”骗局大起底 如何识破伪科学骗局？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvoie.md)
+- [龙舟逐浪亚沙会 中国队斩获5金1银](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md)
+- [中央气象台今早继续发布沙尘暴蓝色预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gddqq.md)
+- [昆明海关所属金水河海关艰苦地区边关生活设施保障能力提升工程（二期）项目竞争性磋商公告](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frtnp.md)
+- [“三顾之城开新局”中央主流媒体看南阳主题宣传活动启动](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/inmpq.md)
+- [【在希望的田野上】我国夏油作物收获进入高峰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
+- [酒价内参4月27日价格发布：洋河梦之蓝M6+上涨2元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanmeng.md)
+- [中美联合侦破郭某等人走私贩毒案 切断一条跨国贩毒通道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuezan.md)
+- [国家防总针对湖南广西启动防汛四级应急响应 加派工作组赴一线指导](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opqpi.md)
+- [伊拉克给敢闯霍尔木兹海峡的石油买家“打折”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvige.md)
+- [李强会见美国工商界代表](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jwkss.md)
+- [“政策+科技”双管齐下 “稻麦同框”绘就智慧农业新图景](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duanpeng.md)
+- [辽宁通信行业出台多项举措助力打造“营商环境最佳口碑省”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenque.md)
+- [经纬线·中美关系新定位！盘点中美元首会谈的重要信号](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanliu.md)
+- [法国一知名药企遭遇“傍名牌”在豫成功维权](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
+- [特朗普过去24小时都忙了什么？（2026-05-17）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md)
+- [日本三大银行年度利润均创新高](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksbpq.md)
+- [美媒称特朗普再给伊朗3至5天停火时间](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usror.md)
+- [中国驻南非使馆举办“多边主义下的南南合作” 青年交流活动](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoqin.md)
+- [从银幕到竖屏 美国演员在中国逐梦微短剧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuochun.md)
+- [美国青年参观桂林飞虎队遗址 触摸历史感悟友谊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
+- [外企民企接连投下信任票：心安之处何以浙江？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanjin.md)
+- [解放军南部战区位中国黄岩岛领海领空及周边区域组织战备警巡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
+- [（寻味中华丨节令）送春迎夏时 万物生新意](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
+- [云傲智能王峰：MeshAI驱动企业级通信AI迈向深度落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
+- [生成式人工智能挑战传统商业模式，印度IT板块指数跌至三年来新低](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
+- [以色列空袭黎巴嫩 造成4人死亡8人受伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiryb.md)
+- [PCB概念股午前涨幅居前 胜宏科技涨近8%建滔积层板涨近6%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/trefu.md)
+- [长鑫科技IPO更新财报！上半年净赚500亿-570亿元，这些A股股东受关注](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fare.md)
+- [关键节点伊朗外长访华 中伊外长会谈释放多重信号](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkcwn.md)
+- [一季度，险资加仓路线图曝光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md)
+- [甘肃临夏：簪花公交与牡丹仙子同游“五一” 解锁城市浪漫色彩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txjtt.md)
+- [金宏气体：目前公司的现场制气设备均为外采](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnuhk.md)
