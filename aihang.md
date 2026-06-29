@@ -13,5 +13,5 @@
 <br><p>消费升级，生态闭环 为实现客户“入境—境内—离境”闭环服务，“来华通”APP重点打造购物退税专区，构建从“种草”到“拔草”的全流程消费体系，助力打造“购在中国”金字招牌。</p>
 
 <br><br><h3>“赫哲故里”同江：“半江春水半江冰”美景醉游人</h3><br><p>胡塞武装声援伊朗：美以若恢复袭击，将升级军事行动<br><br> | 原始页面：share.kurohicncr.top/Article/details/822038.sHtML</p>
-- [link](https://example.com/)
-- [link](https://example.com/)
+<br><br><h3>银河电子2025年营收5.48亿元增3.58%，亏损大幅收窄至8367.52万元，毛利率提升72.9个百分点</h3><br><p>兆威机电盘初涨超7% 拟投资约8亿元建设灵巧手产业园<br><br> | 参考来源：share.minike.top/Article/details/20779.sHtML</p>
+- [美国二手房销售降至九个月低点 房价走高](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/baixiu.md)
