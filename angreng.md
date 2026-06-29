@@ -10,5 +10,5 @@
 <br><p>(完)</p>
 
 <br><br><h3>7月底前湖南将完成5万户切坡建房隐患治理</h3><br><p>比亚迪×肯德基：9分钟完成“人车双补”重构出行生活新场景<br><br> | 原文链接：github.com/lisacumin64-arch</p>
-- [link](https://example.com/)
-- [link](https://example.com/)
+<br><br><h3>美元创1月27日以来最大跌幅 伊朗战争停火提振了市场风险情绪</h3><br><p>全线爆发！美股大涨，黄金、白银拉升！特朗普，最新发声！<br><br> | 原始页面：blog.minike.top/Article/details/5090474.sHtML</p>
+- [二十届中央第七轮巡视对象公布 将对36家单位党组织开展常规巡视](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md)
